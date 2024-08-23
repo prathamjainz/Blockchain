@@ -1,1 +1,1 @@
-Learnign projects 
+Learning projects 
